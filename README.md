@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Abdul Azeem
-- I made this account just for forality as "Github" was part of the cv template that I used and it was not removeable.
+- I made this account just for formality as "Github" was part of the cv template that I used and it was not removeable. I really liked that template and wanted to use it.
 - But thatnks to chech it out ...
